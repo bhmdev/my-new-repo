@@ -20,3 +20,6 @@ Another character did a thing heh
 
 
 the dog went off runnning and bite a kid.
+
+
+what? this story is getting weird and short.
